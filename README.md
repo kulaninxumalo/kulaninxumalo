@@ -12,4 +12,3 @@ I've been fortunate enough to design and build some cool stuff, including missil
   - 🐦 X: [@KulaniNxumalox](https://x.com/KulaniNxumalox) (could you please be my follower? creepy, huh...)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I love writing documentation 😬
-d
