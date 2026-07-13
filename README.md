@@ -9,6 +9,6 @@ I've been fortunate enough to design and build some cool stuff, including missil
 - 📫 How to reach me:
   - Bump into me at an oil & gas plant
   - 📧 Email: kulani.nxumalo@miyelani.co.za
-  - 🐦 X: [@KulaniNxumalox](https://x.com/KulaniNxumalox) (could you please be my follower? creepy, huh...)
+  - 🐦 X: [@kulaninx](https://x.com/kuaninx) (could you please be my follower? creepy, huh...)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I love writing documentation 😬
